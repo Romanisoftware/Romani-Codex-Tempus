@@ -28,5 +28,6 @@ Well Codex tempus is based in the year 5687 AD when the C.R.A have fallen the D.
  email!
  Note: please report illegal copies of the 
  games so that i'll take them down.
- 
+ please let me know about Sponsorships on anything
+ and we will talk about it!
  
